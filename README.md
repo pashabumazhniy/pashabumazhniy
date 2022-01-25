@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @pashabumazhniy
-- 👀 I’m interested in ...
-- 🌱 I’m currently learning ...
-- 💞️ I’m looking to collaborate on ...
+- 👀 I’m interested in you
+- 🌱 I’m currently learning think
+- 💞️ I’m looking to collaborate on boracollate
 - 📫 How to reach me ...you can look around and find me next to you.
 
 
